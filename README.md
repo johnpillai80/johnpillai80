@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...lern & Earn & live in simpel way
 - 🌱 I’m currently learning ... about new financial  tranding
 - 💞️ I’m looking to collaborate on ...any intresting project in profitable & knowagebel
-- 📫 How to reach me ...telegram https://t.me/mastermind_198075 /  whatsapp https://wa.me/message/OBFOBG44AQ2CJ1
+- 📫 How to reach me ...telegram https://t.me/mastermind_198075 /  WhatsApp.....https://wa.link/91fj31
+- 
 - 😄 Pronouns: ...johnpillai80 
 - ⚡ Fun fact: ...@@@$$$$$@@@
 @@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
